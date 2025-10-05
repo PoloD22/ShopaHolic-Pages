@@ -1,0 +1,2 @@
+# ShopaHolic-Pages
+Shopaholics
